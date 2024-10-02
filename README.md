@@ -27,7 +27,7 @@ Completed by Bachelor of Arts in Sociology and Drama at the University of Albert
 
 Thought that Sociology would help me with getting more into the law enforcement world, but alas poor yorick...tis was not meant to be 
 
-![Yorick](/kmouellet/src/img/yorick-stock-photo)
+![Yorick](/kmouellet/src/img/yorick-stock.jpg)
 
 If you hadn't guessed, I was and am a huge Drama geek!!!
 
